@@ -42,7 +42,7 @@ Kaydence Lin :
 
 Keshav Goel : 
 
-Melina Yang : 
+Melina Yang : I met Tom Holland in the Whole Foods on symphony (crazy)
 
 Michael Maaseide : 
 
