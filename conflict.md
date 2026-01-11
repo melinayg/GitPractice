@@ -6,7 +6,7 @@ The best muscial artist is ________
 
 The best programming language is _________
 
-The best state in the United States is California
+The best state in the United States is NY
 
 The best place to visit for vacation is ____________
 
